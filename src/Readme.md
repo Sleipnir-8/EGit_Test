@@ -1,1 +1,1 @@
-This is a beginner's code, nothing worth watching.
+Nothing worth watching.
